@@ -68,7 +68,7 @@ Please take a look at the list and consider applying for the scholarships that b
 * 해외 대학원 박사 과정에 합격한 자
 * 8학기동안 120,000 달러, 왕복 항공
 
-### 관정 이종환 교육재단
+### 관정 이종환 교육재단 (매년 선정) O
 * https://www.ikef.or.kr/
 * 해외 대학원 과정에 합격한 자
 * 최대 연간 60,000 달러
